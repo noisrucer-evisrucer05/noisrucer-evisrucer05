@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @noisrucer-evisrucer05
+👋 Hi, I’m @noisrucer-evisrucer05
 
